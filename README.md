@@ -1,2 +1,4 @@
 # Leaks2
-당신이 이 모든 일을..
+Do you know why I made this choice?
+
+you have no right to insult me
